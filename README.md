@@ -1,1 +1,0 @@
-# teayamo.github.io
